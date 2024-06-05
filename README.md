@@ -1,3 +1,3 @@
 BOM DIA SENHORES
 
-![](https://storage.ko-fi.com/cdn/useruploads/post/a73190c5-1724-4fc7-988e-d141445646d5_spiaggiapreview.gif)
+![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExc2hydWx1Ynhmb3h1dTBmZHRvY25hMW5sY2Vuc3l2d3VkcXpkM2xuYiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/gx54W1mSpeYMg/giphy.gif)
