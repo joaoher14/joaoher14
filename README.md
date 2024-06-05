@@ -13,4 +13,4 @@ profissão: estudante
 
 PROJETOS
 
-![](https://giphy.com/clips/hamlet-UfZ47L4gCI81xtylZp)
+![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExYXZvbmNxc2p6NnRsdm9wNXk0Njk0cXNzenF3Mnk4cG92djdmaDJwMCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/0Ei5SMtHRmTkMkjVei/giphy.gif)
